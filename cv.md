@@ -1,8 +1,7 @@
-**
+
 
 ## Filipovich Pavel
 
-**
 
 *+375(29)1860525
 email: pf1860525@gmail.com
